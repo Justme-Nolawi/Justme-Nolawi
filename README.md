@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Farmify🌱**
 
-- 💬 Ask me about **Anything, actually**
+- 💬 Ask me about **Nothing, actually**
 
 - 📫 How to reach me **https://t.me/Justme_nolawi**
 
